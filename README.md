@@ -19,15 +19,25 @@ http://answerszuvs3gg2l64e6hmnryudl5zgrmwm3vh65hzszdghblddvfiqd.onion/
 # cc
 
 https://ver.sc
+
 https://crdpro.cc
+
 https://procrd.biz
+
 https://promarket.pw
+
 https://ascarding.com
+
 https://blackbones.net
+
 https://cardvilla.cc
+
 https://enclave.cc
+
 https://carders.ws
+
 https://blackhatcarding.is
+
 https://club2crd.cc/
 
 # Coin
