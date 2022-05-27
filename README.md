@@ -13,6 +13,7 @@ http://facebookwkhpilnemxj7asaniu7vnjjbiltxjqhye3mhbshg7kx5tfyd.onion/
 https://thehiddenwiki.org
 
 # cc
+
 https://ver.sc
 https://crdpro.cc
 https://procrd.biz
@@ -23,7 +24,7 @@ https://cardvilla.cc
 https://enclave.cc
 https://carders.ws
 https://blackhatcarding.is
-
+https://club2crd.cc/
 
 # Coin
 
