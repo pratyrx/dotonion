@@ -1,4 +1,4 @@
-# dotonion-project
+# dotonion
 
 http://danielas3rtn54uwmofdo3x2bsdifr47huasnmbgqzfrec5ubupvtpid.onion/
 
@@ -18,7 +18,7 @@ http://answerszuvs3gg2l64e6hmnryudl5zgrmwm3vh65hzszdghblddvfiqd.onion/
 
 http://asap2u4pvplnkzl7ecle45wajojnftja45wvovl3jrvhangeyq67ziid.onion/
 
-# cc
+# CC
 
 https://ver.sc
 
