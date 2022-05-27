@@ -9,3 +9,20 @@ http://search7tdrcvri22rieiwgi5g46qnwsesvnubqav2xakhezv4hjzkkad.onion/
 http://redrootw3cgrett4tea4fg3p3e7cwxdjrbbf74iq33koy2ywy3wgb6ad.onion/
 
 http://facebookwkhpilnemxj7asaniu7vnjjbiltxjqhye3mhbshg7kx5tfyd.onion/
+
+https://thehiddenwiki.org
+
+
+# Coin
+
+Bit
+
+3AVyN9QHJiFWn2RhT7ADxUiKtFM1LKSJp3
+
+Doge
+
+DMHcbtxtm8zB6iEQsmqYBwPC6yL6WUijru
+
+Lite
+
+MRWqExseKKfCoQ2oKtq3A7MPNSt5CGt9F4
