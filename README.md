@@ -13,7 +13,7 @@ http://facebookwkhpilnemxj7asaniu7vnjjbiltxjqhye3mhbshg7kx5tfyd.onion/
 https://thehiddenwiki.org
 
 # cc
-ver.sc
+https://ver.sc
 https://crdpro.cc
 https://procrd.biz
 https://promarket.pw
